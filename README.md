@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **davidsetya777@gmail.com**
 
--     Look my CV https://drive.google.com/file/d/1nyqMqDksc1wUHC-lveP7tquOLww0vCu9/view?usp=sharing
+-     Look my CV (https://drive.google.com/file/d/1nyqMqDksc1wUHC-lveP7tquOLww0vCu9/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
